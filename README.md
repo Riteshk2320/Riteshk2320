@@ -1,4 +1,4 @@
-- Hi there, I’m @Riteshk2320 : sunglasses:	
+- Hi there, I’m @Riteshk2320 :	
 
 - Hello Everyone, My name is Ritesh Kadam, a passionate, self-motivated Fresher programmer from INDIA :india:
 - Completed BE in Computer Engineering From SPPU, Pune. :notebook_with_decorative_cover:
